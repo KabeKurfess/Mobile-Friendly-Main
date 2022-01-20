@@ -1,1 +1,0 @@
-# Mobile-Friendly-Day2
